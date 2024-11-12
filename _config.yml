@@ -20,8 +20,8 @@ author: Johanna & Constantin
 ###############################################
 
 navbar-links:
-  Hochzeitstag: "ablauf"
-  Anmeldung: "anmeldung"
+  Hochzeitstag: "Ablauf"
+  Anmeldung: "Anmeldung"
 
 ################
 # --- Logo --- #
@@ -54,7 +54,7 @@ social-network-links:
  # twitter: daattali
  # patreon: DeanAttali
  # youtube: "@daattali"
-  whatsapp: "ihr habt den Kontakt"
+# whatsapp: "ihr habt den Kontakt"
 #  medium: yourname
 #  reddit: yourname or r/yoursubreddit
 #  linkedin: daattali
