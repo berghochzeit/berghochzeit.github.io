@@ -29,4 +29,6 @@ Ablauf (vorraussichtlich):
 - ca. 15:30 Ankunft auf dem Weißen Stein
 - ca. 15:30 Sommerfest in der [Höhengaststätte Zum Weißen Stein](https://weisserstein-dossenheim.de/) (Zufahrt nur über Dossenheim! Weißer Stein 1, 69221 Dossenheim)
 
-Wir 
+An der Location gibt es Parkmöglichkeiten und auch ein Camper findet da seinen Platz. 
+Wir wollen nicht dass ihr "zu glücklich" nachts mit dem Fahrrad wieder runter fahrt. Vielleicht findet ihr ja eine Mitfahrgelegenheit oder ein Taxi.
+Am nächsten Tag organisieren wir einen kleinen shuttle transfer nach oben um die Fahrräder abzuholen. Die Abfahrt it perfekt um auszunüchtern! 
