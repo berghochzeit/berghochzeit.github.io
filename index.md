@@ -16,9 +16,9 @@ Wir hoffen so viele wie möglich von euch bereits zum Sektempfang am Rathhaus be
 Nach dem Sektempfang wollen wir mit dem Fahrrad zu der Location auf den Weißen Stein fahren. Jede*r ist herzlich eingeladen mitzufahren, damit das eine möglichst bunte Truppe wird! 
 Allerdings eine kleine Warnung: Die [Strecke](https://constantinulrich.github.io/Fahrradstrecke) hat am Ende einige Höhenmeter und kann auch etwas anstrengend werden... aber sie lohnt sich!
 Wichtig ist auf jeden Fall ein kleiner Gang - und natürlich ist auch ein E-Bike eine Möglichkeit.
-Wir werden langsam fahren und es wird auf der Strecke ein paar Errischungen geben. Auch wenn die wahrscheinlich nicht allen hilft besser anzukommen ;)
+Wir werden langsam fahren und es wird auf der Strecke ein paar Erfrischungen geben. Auch wenn die wahrscheinlich nicht allen hilft besser anzukommen ;)
 
-Oben angekommen wird es einen Duschwagen geben. Außerdem wird es ein "Begleitfahrzeug geben, dass Duschsachen, Wechselklamotten etc. für euch zur Location bringt. 
+Oben angekommen wird es einen Duschwagen geben. Außerdem wird es ein "Begleitfahrzeug" geben, dass Duschsachen, Wechselklamotten etc. für euch zur Location bringt. 
 
 Es kann natürlich immer sein, dass ihr aus irgendwelchen Gründen, sei es zeitlich, gesundheitlich oder auch weil ihr auch kein passendes Fahrrad habt, nicht mitfahren könnt. Wir freuen uns wenn ihr einfach später oben an der Location zu uns stoßt! 
 
