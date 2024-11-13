@@ -11,7 +11,7 @@ wir freuen uns schon sehr unsere Hochzeit mit euch zu feiern. Damit wir wissen o
 Wir werden diese Webseite auch dafür nutzen euch darüber auf dem Laufenden zu halten wie der Tag geplant ist. 
 Zunächst einmal ein grober Ablauf, soweit er bis jetzt fest steht. Wir werden die Details stückweise konkretisieren. 
 
-Wir hoffen so viele wie möglich von euch bereits zum Sektempfang am Rathhaus begrüßen zu dürfen. Leider hat das Trauzimmer nur platz für eine handvoll Menschen. 
+Wir hoffen so viele wie möglich von euch bereits zum Sektempfang am Rathaus begrüßen zu dürfen. Leider hat das Trauzimmer nur Platz für eine Handvoll Menschen. 
 
 Nach dem Sektempfang wollen wir mit dem Fahrrad zu der Location auf den Weißen Stein fahren. Jede*r ist herzlich eingeladen mitzufahren, damit das eine möglichst bunte Truppe wird! 
 Allerdings eine kleine Warnung: Die [Strecke](https://constantinulrich.github.io/Fahrradstrecke) hat am Ende einige Höhenmeter und kann auch etwas anstrengend werden... aber sie lohnt sich!
@@ -31,4 +31,4 @@ Ablauf (vorraussichtlich):
 
 An der Location gibt es Parkmöglichkeiten und auch ein Camper findet da seinen Platz. 
 Wir wollen nicht dass ihr "zu glücklich" nachts mit dem Fahrrad wieder runter fahrt. Vielleicht findet ihr ja eine Mitfahrgelegenheit oder ein Taxi.
-Am nächsten Tag organisieren wir einen kleinen shuttle transfer nach oben um die Fahrräder abzuholen. Die Abfahrt it perfekt um auszunüchtern! 
+Am nächsten Tag organisieren wir einen kleinen Shuttle Transfer nach oben um die Fahrräder abzuholen. Die Abfahrt it perfekt um auszunüchtern! 
