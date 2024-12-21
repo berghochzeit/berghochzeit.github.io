@@ -1,6 +1,6 @@
 ---
 layout: page
-title: 
+title:
 subtitle: Vom Standesamt zur Location auf dem Weißen Stein
 ---
 
