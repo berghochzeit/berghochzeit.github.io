@@ -27,8 +27,12 @@ Vorraussichtlicher Ablauf:
 - ca. 12:15 Uhr Sektempfang am Rathhaus
 - ca. 13:30 Uhr Start der Fahrradtour zum Weißen Stein
 - ca. 16:00 Uhr Ankunft auf dem Weißen Stein
-- ca. 16:00 Uhr Sommerfest in der [Höhengaststätte Zum Weißen Stein](https://weisserstein-dossenheim.de/) (Zufahrt nur über Dossenheim! Weißer Stein 1, 69221 Dossenheim)
+- ca. 16:00 Uhr Sommerfest im Garten der [Höhengaststätte Zum Weißen Stein](https://weisserstein-dossenheim.de/) (Zufahrt nur über Dossenheim! Weißer Stein 1, 69221 Dossenheim)
+
+Es ist mitte Juni, es wird (hoffentlich) warm, wir machen Sport - zieht euch so an wie ihr euch wohl fühlt. Lieber Sommerhemd als Anzug. Denkt daran, dass es oben im Wald ein bischen abkühlen kann wenn es dunkel wird. 
 
 An der Location gibt es Parkmöglichkeiten und auch ein Camper findet dort seinen Platz. 
 Wir wollen nicht, dass ihr "zu glücklich" nachts mit dem Fahrrad wieder runter fahrt. Vielleicht findet ihr ja eine Mitfahrgelegenheit oder ein Taxi.
 Am nächsten Tag organisieren wir einen kleinen Shuttle Transfer nach oben um die Fahrräder abzuholen. Die Abfahrt it perfekt um auszunüchtern! 
+
+
