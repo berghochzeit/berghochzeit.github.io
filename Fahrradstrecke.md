@@ -1,7 +1,5 @@
 ---
 layout: page
-title:
-subtitle:
 ---
 ### Vom Standesamt zur Location auf dem Weißen Stein
 ![de:hub.de-Projekt](/assets/img/strecke.png)
