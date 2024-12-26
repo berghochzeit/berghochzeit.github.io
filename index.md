@@ -14,13 +14,13 @@ Zunächst einmal ein grober Ablauf, soweit er bis jetzt feststeht. Wir werden di
 Es würde uns freuen, euch bereits zum Sektempfang am Rathaus ab 12:15 Uhr begrüßen zu dürfen. Da die Kapazitäten im Trauzimmer begrenzt sind, können uns leider nur unser engster Familienkreis sowie unsere Trauzeugen begleiten. 
 
 Nach dem Sektempfang wollen wir mit dem Fahrrad zu der Höhengaststätte Zum Weißen Stein fahren. Wir freuen uns über alle, die uns auf der Tour begleiten, damit das eine möglichst bunte Truppe wird! 
-Allerdings eine kleine Warnung: Die [Strecke](https://constantinulrich.github.io/Fahrradstrecke) hat am Ende einige Höhenmeter und kann auch etwas anstrengend werden... aber sie lohnt sich!
+Allerdings eine kleine Warnung: Die [Strecke](https://berghochzeit.github.io/Fahrradstrecke/) hat am Ende einige Höhenmeter und kann auch etwas anstrengend werden... aber sie lohnt sich!
 Wichtig ist auf jeden Fall ein kleiner Gang - natürlich ist auch ein E-Bike eine Möglichkeit.
 Wir werden langsam fahren und es wird auf der Strecke ein paar Erfrischungen geben. Auch wenn die wahrscheinlich nicht allen hilft, besser anzukommen ;)
 
 Ihr könnt Duschsachen und Wechselklamotten mit einem "Begleitfahrzeug" zur Location bringen lassen. Oben angekommen wird es Duschmöglichkeiten geben. 
 
-Es kann natürlich immer sein, dass ihr aus irgendwelchen Gründen, sei es zeitlich, gesundheitlich oder auch, weil ihr auch kein passendes Fahrrad habt, nicht mitfahren könnt. Wir machen auf der [Strecke](https://constantinulrich.github.io/Fahrradstrecke) drei Verpflegungsstopps. Ihr seid herzlich eingeladen, schon dort oder dann oben an der Location dazuzustoßen.
+Es kann natürlich immer sein, dass ihr aus irgendwelchen Gründen, sei es zeitlich, gesundheitlich oder auch, weil ihr auch kein passendes Fahrrad habt, nicht mitfahren könnt. Wir machen auf der [Strecke](https://berghochzeit.github.io/Fahrradstrecke/) drei Verpflegungsstopps. Ihr seid herzlich eingeladen, schon dort oder dann oben an der Location dazuzustoßen.
 
 Voraussichtlicher Ablauf:
 - 12:00 Uhr standesamtliche Trauung am Rathaus (Marktplatz 10, 69117 Heidelberg)
