@@ -20,7 +20,7 @@ Wir werden langsam fahren und es wird auf der Strecke ein paar Erfrischungen geb
 
 Ihr könnt Duschsachen und Wechselklamotten mit einem "Begleitfahrzeug" zur Location bringen lassen. Oben angekommen wird es Duschmöglichkeiten geben. 
 
-Es kann natürlich immer sein, dass ihr aus irgendwelchen Gründen, sei es zeitlich, gesundheitlich oder auch, weil ihr auch kein passendes Fahrrad habt, nicht mitfahren könnt. Wir machen auf der [Strecke](https://berghochzeit.github.io/Fahrradstrecke/) drei Verpflegungsstopps. Ihr seid herzlich eingeladen, schon dort oder dann oben an der Location dazuzustoßen.
+Ihr könnt natürlich auch erst später an der Location dazukommen oder vorher an einem der [Verpflegungsstopps](https://berghochzeit.github.io/Fahrradstrecke/) mit uns anstoßen. 
 
 Voraussichtlicher Ablauf:
 - 12:00 Uhr standesamtliche Trauung am Rathaus (Marktplatz 10, 69117 Heidelberg)
