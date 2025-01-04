@@ -6,7 +6,7 @@ subtitle: Unsere Hochzeit am 14.06.2025 in Heidelberg
 
 Herzlich Willkommen, 
 
-wir freuen uns schon sehr, unsere Berghoch-Zeit mit euch zu feiern. Damit wir wissen, ob wir mit euch planen können, würden wir euch bitten, über diesen [Link](https://forms.gle/R2b32HmZwD2HLx5F7) bis zum 15.02.2025 zuzusagen.
+wir freuen uns schon sehr, unsere Hochzeit mit euch zu feiern. Damit wir wissen, ob wir mit euch planen können, würden wir euch bitten, über diesen [Link](https://forms.gle/R2b32HmZwD2HLx5F7) bis zum 15.02.2025 zuzusagen.
 
 Wir werden diese Webseite auch dafür nutzen, euch über die weitere Planung des Tages auf dem Laufenden zu halten.  
 Zunächst einmal ein grober Ablauf, soweit er bis jetzt feststeht. Wir werden die Details immer wieder updaten. 
