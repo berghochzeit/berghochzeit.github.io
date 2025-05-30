@@ -9,5 +9,5 @@ Die Strecke zum weißen Stein findet ihr unter dem folgenden Komoot Link: [Strec
 
 Für die Autofahrer*innen:
 1. Verpflegungsstopp: [Google Maps](https://maps.app.goo.gl/MZzmmwgQcA6cCunL7)
-2. Verpflegungsstopp: [Google Maps](https://maps.app.goo.gl/s6mA14UR2NaqAzYs7)
+2. Verpflegungsstopp: [Google Maps](https://maps.app.goo.gl/s6mA14UR2NaqAzYs7) - Hier gibt es auch einen kleinen Waldspielplatz mit Sitzgelegenheiten.
 3. Verpflegungsstopp: [Google Maps](https://maps.app.goo.gl/7heiTiWyjruSgpQJ8)
