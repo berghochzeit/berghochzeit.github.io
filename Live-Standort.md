@@ -4,4 +4,4 @@ title: Live-Standort
 subtitle:
 ---
 
-Am Hochzeitstag erscheint hier ein Link zu einer Whatsapp Gruppe in der ein Live-Standort für die Fahrradtour geteilt wird.
+Über diesen Link kommt ihr in eine Whatsapp Gruppe in der ein Live-Standort für die Fahrradtour geteilt wird: [Whatsapp Gruppe](https://chat.whatsapp.com/FshaZUDmsbYCxGZfd6c0AA)
